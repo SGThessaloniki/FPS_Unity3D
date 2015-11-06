@@ -16,5 +16,5 @@ Other Assets:
 Gunshot sound: http://freesound.org/people/Xenonn/sounds/128301/
 
 If you need more info about this project
-contact me on orfeas.eleftheriou@outlook.com 
+contact me at orfeas.eleftheriou@outlook.com 
 or add me on facebook: http://www.facebook.com/orfeas.el
